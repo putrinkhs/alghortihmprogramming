@@ -1,2 +1,1 @@
-Nama : Putri Nur Khasanah
-NIM  : 2702346746
+Putri Nur Khasanah - 2702346746
